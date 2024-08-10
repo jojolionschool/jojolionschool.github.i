@@ -1,1 +1,1 @@
-# jojolionschool.github.i
+# jojolionschool.github.io
